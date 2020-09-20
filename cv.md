@@ -13,4 +13,9 @@ Minsk, Belarus
 * CSS
 * JAVASCRIPT
 * PHOTOSHOP/FIGMA
+## Education
+* BSEU, Law faculty (2015-2019)
+## English level is Advanced
+* A2 (Pre-intermediate)
+
 
